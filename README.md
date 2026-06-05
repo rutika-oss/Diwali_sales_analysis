@@ -88,3 +88,6 @@ Aspiring AI/ML Engineer | Data Analyst
 **Skills:** Python, SQL, Machine Learning, Data Analysis, Streamlit, YOLOv8
 
 ---
+manerutika48@gmail.com [mail]
+www.linkedin.com/in/rutika-mane-121a0526a [LinkedIn]
+
