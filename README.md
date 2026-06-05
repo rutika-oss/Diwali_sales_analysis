@@ -89,5 +89,6 @@ Aspiring AI/ML Engineer | Data Analyst
 
 ---
 manerutika48@gmail.com [mail]
+---
 www.linkedin.com/in/rutika-mane-121a0526a [LinkedIn]
 
